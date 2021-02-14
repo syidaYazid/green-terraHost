@@ -1,0 +1,3 @@
+# Privacy Policy
+
+WE ARE PROTECTING YOUR PRIVACY
